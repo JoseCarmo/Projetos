@@ -1,8 +1,8 @@
 # Projetos - Projects
 
-A seguir, ha um selecao de projetos, programas, relatorios e outros conteduos de interesse 
+A seguir, há uma seleção de projetos, programas, relatórios e outros conteúdos de interesse geral
 
-Following up, there is a selection of projects, programs, reports and other imporant content
+Following up, there is a selection of projects, programs, reports and other general interest content
 
 
 
